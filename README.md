@@ -1,3 +1,3 @@
-# VarshaSatish.github.io
+# akshaybajpai.github.io
 
-Goto https://VarshaSatish.github.io to visit website.
+Goto https://akshaybajpai.github.io to visit website.

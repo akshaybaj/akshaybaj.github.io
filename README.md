@@ -1,3 +1,3 @@
-# akshaybajpai.github.io
+# akshaybaj.github.io
 
-Goto https://akshaybajpai.github.io to visit website.
+Goto https://akshaybaj.github.io to visit website.
